@@ -1,1 +1,1 @@
-# yaz-l-m-hakk-nda
+# yazilim-hakkinda
